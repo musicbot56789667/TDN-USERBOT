@@ -3,7 +3,7 @@
 </h1>
 
 <p align="center">
-  <img src="https://te.legra.ph/file/a350fd3eef952b5c11801.jpg" alt="VIP USERBOT">
+  <img src="https://graph.org/file/4c5fc7d3d51405836a526.jpg" alt="❛-𝐌𝐫❜𝆺꯭𝅥𝆺꯭𝅥༎𝐊𝐇𝐔नी❞╬ꗝؖؖ༎፝֟🩸))">
 </p>
 
 <h6 align="center">
